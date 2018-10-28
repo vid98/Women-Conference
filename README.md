@@ -38,7 +38,7 @@ Back End:SQL
 ## Contact Details
  ####  Ms Ishwariya Ram CONFERENCE ORGANIZING SECRETARY
  ##### wcsecretary@werpindia.org +91 7829300281
- #### Mr Kamendra Narain DELHI ORGANIZING SECRETARY 
+ #### Mr Karmendra Narain DELHI ORGANIZING SECRETARY 
    ##### karmendran11.narain@gmail.com karmendra.werpindia@gmail.com   +91 9650256416
   
  
